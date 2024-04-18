@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @HextonFroster
+- 👀 I’m interested in ... Many things except men
+- 🌱 I’m currently learning ... React.js
+- 💞️ I’m looking to collaborate with ... her
+- 📫 How to reach me hexton_froster
+- 😄 Pronouns: ... He/Him
+- ⚡ Fun fact: ... FPS Addict lmao
